@@ -1,2 +1,2 @@
 # mygit
-![변려펠라](https://github.com/user-attachments/assets/706b3f5f-ce4d-4d51-9b28-4047b5b0fbc7)
+![변려펠라](https://github.com/user-attachments/assets/01acf391-249d-49d6-aed8-6732aab2c4a0)
